@@ -1,5 +1,5 @@
-title:            Site Title
-description:      Describe your website here.
+title:            Red Pills
+description:      32 red pills of a modern slave
 logo:             site-logo.png
 disqus_shortname: 
 search:           true
@@ -9,7 +9,7 @@ url:              http://outgeeker.github.io
 
 # Owner/author information
 owner:
-  name:				Your Name
+  name:				Teller of tales
   avatar:			bio-photo.jpg
   email:			you@email.com
   signoff_text:		Till next time
@@ -17,7 +17,7 @@ owner:
   signature_image:	signature.png
   # Social networking links used in footer. Update and remove as you like.
   # To register at HMFAYSAL SOCIAL, visit http://social.hmfaysal.tk
-  twitter:        hmfaysal
+  twitter:        comingsoon
   facebook:       
   github:         
   stackexchange:  
