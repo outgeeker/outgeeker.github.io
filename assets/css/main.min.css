@@ -496,6 +496,13 @@ blockquote {
     margin: 0;
 }
 
+.main-content blockquote{
+	line-height: 1.5em;
+	font-weight: normal;
+	font-size: 22px;
+	font-family: abel,sans-serif;
+}
+
 img {
     width: auto\9;
     height: auto;
@@ -2924,19 +2931,14 @@ span+.entry-title {
 
 .entry-content {
     width: 100%;
-	max-width: 100%;
-	margin-right: auto;
+    max-width: 100%;
+    margin-right: auto;
     margin-left: auto;
 }
 
-.entry-content .post-list p {
-	margin: 1em 0 0 0;
-	max-width: 100%;
-}
-
-.entry-content p {
-    max-width: 600px;
-	margin: 0 auto 1em auto;
+.main-content {
+	width: 600px;
+	margin: auto;
 }
 
 .entry-content p:first-child {

@@ -52,7 +52,7 @@
       </header>
       <br>
 <div class="entry-content" itemprop="description">
-        {{ content }}
+        <div class="main-content">{{ content }}</div>
         {% if site.owner.signoff_text %}{% include signoff.html %}{% endif %}
         {% if site.disqus_shortname and page.comments %}<div id="disqus_thread"></div><!-- /#disqus_thread -->{% endif %}
       </div><!-- /.entry-content -->
