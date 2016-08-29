@@ -31,3 +31,69 @@ She starts mumbling about respect and not offending the people on the "continent
 There are many other examples of how utterly brainwashed and degenerated the members of the societies, for example [this worthless female sounding trash](https://www.youtube.com/watch?v=2vWLWpL23p8), who is "not a US citizen, but a free inhabitant of Earth who have all of the rights of a US citizen without following any of their laws". That is the very nature of these spoiled whiny hypocrites. Their arguments make no sense and it reeks of illogical conclusions - any sane person can spot their fallacies, it is the fact that this madness is the 'official' way to think which enables it to blossom, they facilitate your very own murder, but they claim it is for your safety and security!
 
 I know there are still sane people out there. Join our cause, let's unite and make a better world for ourselves!
+
+## Our conversation is with Mr. Yuri Alexandrovich Bezmenov
+
+Mr. Bezmenov was born in nineteen thirty nine in a suburb of Moscow, he was the son of a high-ranking soviet army officer, he was educated in the elite schools inside the Soviet Union and became an expert in Indian culture and Indian languages.
+
+He had an outstanding career with Novosti, which was - and still is - the press agency of the Soviet Union, as it turns out that this is also a front for the KGB.
+
+He escaped to the West in nineteen seventy after becoming totally disgusted with the Soviet system and he did this at great risk to his life. He certainly is one of the world's outstanding experts on the subject of Soviet propaganda and disinformation and active measures.
+
+When the Soviets use the phrase "ideological subversion", what do they mean?
+by that?
+
+*ABV*:
+
+Ideological subversion is is the process which is legitimate, overt, and open you can see with your own eyes.
+
+All you have to do, all American mass media has to do is to unplug their bananas from the ears, open up their eyes and they can see there's no mystery.
+
+That is nothing to do with espionage. I know that espionage, intelligence-gathering looks more romantic, it sells more deodorants through the
+advertising, probably that's why I your Hollywood producers are so crazy about James Bond type of thriller, but in reality the main emphasis of the KGB is not in the area of intelligence at all. According to my opinion and the opinion of many defectors of my caliber, only about fifteen percent of time money and manpower is spent on espionage as such.
+
+The other eighty five percent is a slow process which we call either ideological subversion or active measures in the language of the KGB or psychological warfare.
+
+What that basically means is to change the perception of reality of every American to such an extent, that despite of the abundance of information no one is able to come to sensible conclusions in the interests of defending themselves their families their community and their country.
+
+It's a great brain washing process which goes very slow and is divided in four basic stages.
+
+#### Stage 1: Demoralization
+
+The first one being Demoralisation. It takes from 15 to 20 years to demoralize a nation.
+
+Why that many years? Because this is the minimum number of years which is required to educate one generation of students in the country of of your enemy. Exposed to the ideology of the enemy in other words Marxism-Leninism ideology is being pumped into the soft heads of of at least three generations of American students, without being challenged or counter balanced by the basic values of Americanism, American patriotism.
+
+The demoralization process in the United States is basically completed all ready for the last 25 years actually it's overfulfilled because the
+demoralization now reaches such areas where previously not even Comrade Dropov and on all his experts would not even dream of such a tremendous success.
+
+Most of it is done by Americans to Americans. Thanks to lack of moral standards as I mentioned before, exposure to true information does not matter anymore.
+
+A person who was demoralized is unable to assess through information, the facts tell nothing to him. Even if I shower him with information with authentic through with documents the pictures even if i take him by force the Soviet Union and showing them concentration camp he will refuse to believe it until he's going to receive a kick in the in his fat bottom when the military boot crashes him, then he will understand but not before, that that's the tragic of the situation of demoralization.
+
+#### Stage 2: Destabilization
+
+The next stage is destabilization. This time the subverter does not care about your ideas and the patterns of your consumption, whether you junk food and get fat and flabby, it doesn't matter anymore.
+
+This time and it takes only from two to five years to destabilize a nation. It's what matters is essentials:
+economy, Foreign Relations, defense systems and you can see it quite clearly see that's in some areas in such sensitive 
+areas as a defense and economy the influence of Marxist-Leninist ideas in the United States is absolutely fantastic.
+
+I could never believe it 14 years ago when I landed in this part of the world that the process will go that fast.
+
+#### Stage 3 & 4: Crisis & Normalization
+
+The next stage of course is crisis: it may take only up to six weeks to to bring a country to the verge of crisis.
+
+You can see it in in Central America now and after crisis with a violent change of power structure and economy you have so called the period of normalization it may last indefinitely. Normalization is a cynical expression board from Soviet propaganda when the Soviet tanks moved into Czechoslovakia in '68 the Comrade Brezhnev said: now the situation in brotherly Czechoslovakia is normalized.
+
+This is what will happen in the United States if you allow all the schmucks to bring the country to crisis to promise people all kind of goodies and the paradise on earth just to disable eyes your economy to eliminate the principle of free market competition and to put a big brother government in Washington DC with the benevolent dictators like Walter Mondale who will promise lots of thing.
+
+Never mind whether the promises are fulfilling not your leftists in united states all these professors and all these beautiful civil rights defenders they are instrumental in the process of the of the subversion only to disability as the nation when the job is completed they're not they're not needed anymore they know too much some of them when they get disillusioned when they see that Marcus letters come to power the obviously they get offended they think that they will come to power that will never happen of course they will be lined up against the wall and shot but they may turn into the most bigger enemies of Marxist Leninist when they come to power.
+
+And that's what happened in Nicaragua you remember most of this former Marxist-Leninist work either put the prison or one of them is
+played and now he's working against some [unintelligible]. It happen in the Granada when Maurice bishop who was already Marxist, he was executed by a new Marxist who has more Marxist than him.
+
+Same happened in Afghanistan when, first there was Taraki who was killed by [unintelligible] was killed by Babrak Karmal with the help of KGB same happen in bangladesh when Mujibur Rahman very pro-soviet leftist was assassinated by his own Marxist-Leninist military comrades.
+
+*It is the same pattern everywhere.*
