@@ -4,7 +4,7 @@ logo:             site-logo.png
 disqus_shortname: 
 search:           true
 #Change url to your domain. Leave localhost server or blank when working locally.
-url:              http://pills.red
+url:              http://127.0.0.1:4000 # http://pills.red
 #cdn:			  http://cdn.localhost:4000
 
 # Owner/author information
